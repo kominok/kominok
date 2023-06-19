@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @kominok
-- 👀 I’m interested in Marketing.
+👋 Hi, I’m @kominok
+👀 I’m interested in Marketing.
